@@ -1,0 +1,4 @@
+- Music
+- Anime
+- Fighting Games
+- Cars
